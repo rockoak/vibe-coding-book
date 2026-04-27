@@ -68,7 +68,7 @@ https://adbest.com.tw/blog/what-is-vibe-coding/
 
 > 💡 重點
 >
-> 當節奏順，程式自然會長出來。
+> 當節奏順利，程式自然會長出來。
 
 ---
 
